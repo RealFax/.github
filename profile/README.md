@@ -13,5 +13,4 @@
 
 #### \(@^0^@)/ _We are RealFax Messenger, an open source organization created by post-00s_  
 #### 🌈 If you want to join us (**RealFax Messenger LLP**), please send a resume that you think is good to our personnel email  
-#### 🍿 Fun facts -  the youngest person on the team was born in 2008😂  
 #### 🧙 `We belong to ByteTack Group, this will be a great project`  
